@@ -5,21 +5,42 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=rk-black" alt="rk-black" /></a> </p>
 
-- 🔭 I’m currently working on **Rk Trick's Point💥**
+- 🔭 I’m currently working on 
 
-- 🌱 I’m currently learning **Inter😎**
+**Rk Trick's Point💥**
 
-- 👯 I’m looking to collaborate on **Rk Riad Khan😼**
 
-- 🤝 I’m looking for help with **Kolizar Jaan😘**
+- 🌱 I’m currently learning 
+
+**Inter😎**
+
+
+- 👯 I’m looking to collaborate on 
+
+**Rk Riad Khan😼**
+
+
+- 🤝 I’m looking for help with 
+
+**Kolizar Jaan😘**
+
 
 - 👨‍💻 All of my projects are available at [https://github.com/Rk-Black/RK-OK](https://github.com/Rk-Black/RK-OK)
 
-- 💬 Ask me about **Nothing🥱**
+- 💬 Ask me about 
 
-- 📫 How to reach me **rktrickspoint24@gmail.com**
+**Nothing🥱**
 
-- ⚡ Fun fact **I Think I am Alone😅💔**
+
+- 📫 How to reach me 
+
+**rktrickspoint24@gmail.com**
+
+
+- ⚡ Fun fact 
+
+**I Think I am Alone😅💔**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
